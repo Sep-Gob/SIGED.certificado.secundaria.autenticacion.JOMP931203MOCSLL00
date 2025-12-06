@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.JOMP931203MOCSLL00
+JOMP931203MOCSLL00
